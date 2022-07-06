@@ -87,4 +87,4 @@ Give credit here.
 
 
 ## Contact
-Created by [@ivermahimanshu] - feel free to contact me!
+Created by @ivermahimanshu - feel free to contact me!
